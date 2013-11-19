@@ -23,4 +23,4 @@ Preparation
 9. Keep the tea boiling until only 300 ml of brew are left.
 10. Filter the remaining fluids with a coffee filter.
 11. Fill into little shot cups or bottles.
-12. Enjoy!
+12. Enjoy and share with your friends!
